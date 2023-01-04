@@ -12,6 +12,8 @@ Kicking your can all over the place, singin'
 ## Verse 2
 
 ## Chorus 2
+We will, we will rock you, sing it!
+We will, we will rock you, yeah
 
 ## Verse 3
 
